@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Knpod65
 - 👀 I’m interested in everthing is run on code but I'm beginner and will improve myself.
 - 🌱 I’m currently learning about data.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on everyone who want to integrate everything together with me.
 - 📫 How to reach me: via Instargram "@_kincmpp" and Facebook "kinom.pungpound"
 
 <!---
